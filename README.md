@@ -1,2 +1,0 @@
-# krishnakant-lodhi
-Krishnakant lodhi
